@@ -1,0 +1,2 @@
+# ai.Ftech
+[$](@){#} ?; Fletch(consciousness)
